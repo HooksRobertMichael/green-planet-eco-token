@@ -6,9 +6,9 @@
 
 ## Contact info
 
-- **Email:** dejanteofilovic2@gmail.com
+- **Email:** robertmichaelhooks@gmail.com
 
-- **Discord:** [dejan_teofilovic](https://discord.gg/PztT2r5U)
+- **Discord:** [robertmichaelhooks](https://discord.gg/PztT2r5U)
 
 ## Release date
 
